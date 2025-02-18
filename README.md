@@ -1,6 +1,6 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=Hi!;%D0%9F%D1%80%D0%B8%D0%B2%D1%96%D1%82!;Hello!)](https://git.io/typing-svg)
 
-<h2 style="border: none"> This is Spark4444 or Sigma budanov as i like to call myself </h2>
+<h2 style="border: none"> This is Spark4444 aka Sigma budanov </h2>
 <br />
 
 ## What do i do?
